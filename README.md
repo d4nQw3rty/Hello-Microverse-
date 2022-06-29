@@ -17,6 +17,6 @@
 👤 **Danys Linares**
 
 - GitHub: [@d4nQw3rty](https://github.com/d4nQw3rty)
-- Twitter: [@twitterhandle](https://twitter.com/Danys_Linares)
+- Twitter: [@Danys_linares](https://twitter.com/Danys_Linares)
 - LinkedIn: [LinkedIn](https://www.linkedin.com/in/danys-linares-6a328b238?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BnkyI5IMjTzSg4PVJIZh%2BMw%3D%3D)
 
